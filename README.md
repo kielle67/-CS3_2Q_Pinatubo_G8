@@ -3,4 +3,4 @@
 I like music, movies, and the color blue.
 
 ## Kyran Calderon
-**Im awesome
+Kyran is a person who does okay in his academics. He likes to talk a lot and does so very loudly, he also loves music. He's currently trying to hold his laughter because Knoah is struggling to use the snippet tool on Burger photos.
